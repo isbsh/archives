@@ -4,3 +4,6 @@
 1. 「YA・ME・TE!/アバンチュールは銀色に」/ Especia
 - 「スタダ 3Bjunior ラスト大全集」/ 3Bjunior
 - 「アイリス」/ アイリス
+- 「カラフルデイズ」/ LinQ
+- 「짧은 치마 Miniskirt」/ AOA
+- 「Flower」 / Flower
