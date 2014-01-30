@@ -1,5 +1,5 @@
 #2014年の音楽
-##CD,mp3
+##CD・MP3
 ###1月
 1. 『YA・ME・TE!/アバンチュールは銀色に』/ Especia
 - 『スタダ 3Bjunior ラスト大全集』/ 3Bjunior
