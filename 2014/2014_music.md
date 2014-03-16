@@ -13,6 +13,20 @@
 - 『STAR☆TING』/ hy4_4yh
 - 『時が奏でる』/ 蓮沼執太フィル
 
+###2月
+- 『心友』/ おはガールちゅ!ちゅ!ちゅ!
+- 『LADY POWER』/ Lucky Color's
+- 『私生活』/ may.e
+- 「Stand Still (feat. Micky Green) [Wave Racer Remix]」/ Flight Faclities
+- 「With You feat. Grovesnor (Flight Facilities ExtendedMix)」/ Flight Faclities
+- 「Streamers」/ Wave Racer
+- 『変身ダーッ！』/ はちきんガールズ
+- 『冒険はじまる。』/ はちきんガールズ
+- 「大人なのよ!/1億3千万総ダイエット王国」
+
+###3月
+- 「It's You」/ Neon Bunny
+
 
 ---
 ##コンサート・ライブ・イベント
@@ -25,3 +39,11 @@
 - [01/26 アキドラアイドルLIVE　vol.5](http://isbsh.silk.co/page/%E3%82%A2%E3%82%AD%E3%83%89%E3%83%A9%E3%82%A2%E3%82%A4%E3%83%89%E3%83%ABLIVE%E3%80%80vol.5) (AKIBAドラッグ＆カフェ)
 - [01/26 ファンタスティック 2部](http://isbsh.silk.co/page/%E3%83%95%E3%82%A1%E3%83%B3%E3%82%BF%E3%82%B9%E3%83%86%E3%82%A3%E3%83%83%E3%82%AF) (六本木Bee-Hive)
 - 01/29 SOUNDROOM VOL.87 (Super Delux)
+
+###2月
+1. 02/11 はちきんガールズ 冒険はじまる。インストアライブ (東武池袋スカイデッキ広場)
+- 02/23 ハロプロ研修生 発表会 2014～2月・3月の生タマゴShow!～(夜公演) (Zepp Tokyo)
+
+###3月
+1. 03/13 ピンクス＆コピンクス！トークライブ2014～私のリバースデー～ (AKIBAカルチャーズ劇場)
+2. 03/15 演劇女子部「僕たち可憐な少年合唱団（アニーローリー篇）」 (池袋シアターグリーン BOX in BOX THEATER)
