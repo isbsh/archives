@@ -1,21 +1,21 @@
 #2014年の音楽
 ##CD・MP3
 ###1月
-1. 『YA・ME・TE!/アバンチュールは銀色に』/ Especia
+1. 「YA・ME・TE!/アバンチュールは銀色に」/ Especia
 - 『スタダ 3Bjunior ラスト大全集』/ 3Bjunior
-- 『アイリス』/ アイリス
-- 『カラフルデイズ』/ LinQ
+- 「アイリス」/ アイリス
+- 「カラフルデイズ」/ LinQ
 - 「짧은 치마 Miniskirt」/ AOA
 - 『Flower』/ Flower
 - 「いいな」/ ウルトラガール (2013年の曲)
-- 『笑顔の君は太陽さ/君の代わりは居やしない/What is LOVE』/ モーニング娘。'14
-- 『キューティパイ！』/ PLC
+- 「笑顔の君は太陽さ/君の代わりは居やしない/What is LOVE」/ モーニング娘。'14
+- 「キューティパイ！」/ PLC
 - 『STAR☆TING』/ hy4_4yh
 - 『時が奏でる』/ 蓮沼執太フィル
 
 ###2月
-- 『心友』/ おはガールちゅ!ちゅ!ちゅ!
-- 『LADY POWER』/ Lucky Color's
+1. 『心友』/ おはガールちゅ!ちゅ!ちゅ!
+- 「LADY POWER」/ Lucky Color's
 - 『私生活』/ may.e
 - 「Stand Still (feat. Micky Green) [Wave Racer Remix]」/ Flight Faclities
 - 「With You feat. Grovesnor (Flight Facilities ExtendedMix)」/ Flight Faclities
@@ -25,8 +25,23 @@
 - 「大人なのよ!/1億3千万総ダイエット王国」
 
 ###3月
+1. 『Destroy All Monsterz』/ 青山☆聖ハチャメチャハイスクール
+- 「ルシャナの気持ち/Lady Silence」/ Le Siana
+- 「終わらないラブストーリー/ミライのカタチ」/ Le Siana
 - 「It's You」/ Neon Bunny
+- 『Little Glee Monster』/ Little Glee Monster
+- 「心の叫びを歌にしてみた / Love take it all」 / ℃-ute
+- 『Dress to kill』 / AFTERSCHOOL
+- 「So Wonderful」/ LADIES' CODE
+- 「裸の裸の裸のKISS*/ アレコレしたい!」/ Juice=Juice
 
+###4月
+1. 『Berryz工房 スッペシャル ベスト, Vol.2』/ Berryz工房 
+    - 「コイセヨ」
+    - 「女の子にしか分かんない丁度があるの」
+- 「気づいたら片想い」/ 乃木坂46
+- 「だいやぁ☆もんど」/ だいやぁ☆もんど
+- 『KGYワンダーランド』/ KGY40Jr.
 
 ---
 ##コンサート・ライブ・イベント
@@ -47,3 +62,11 @@
 ###3月
 1. 03/13 ピンクス＆コピンクス！トークライブ2014～私のリバースデー～ (AKIBAカルチャーズ劇場)
 2. 03/15 演劇女子部「僕たち可憐な少年合唱団（アニーローリー篇）」 (池袋シアターグリーン BOX in BOX THEATER)
+3. 03/19 Juice＝Juice『裸の裸の裸のKISS／アレコレしたい！』発売記念ミニライブ (クイーンズスクエア横浜)
+4. 03/21 Juice＝Juice『裸の裸の裸のKISS／アレコレしたい！』発売記念ミニライブ (池袋サンシャインシティアルパ 噴水広場)
+
+
+###4月
+1. 「Greeting〜宮本佳林〜」購入者イベント (赤羽橋Pacific Heaven)
+2. ℃-uteコンサートツアー2014春～℃-uteの本音～ 昼公演 (五反田ゆうぽうとホール)
+3. ClubGATAS⑦ (渋谷 bar shifty)
