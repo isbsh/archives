@@ -73,3 +73,16 @@
 3. 04/11 ClubGATAS⑦ (渋谷 bar shifty)
 4. 04/19 東京パフォーマンスドール 「「BRAND NEW STORY」ミニライブ＆予約特典会～TPDの名にかけて！～」(ラゾーナ川崎 ルーファ広場)
 5. 04/20 MELOBARHY FES.2014 (日比谷野外大音楽堂)
+6. 04/27 LIVE GIRLPOP Vol.3 （中野サンプラザ）
+7. 04/29 武藤彩未 DEBUT LIVE 「BIRTH」(TSUTAYA O-East)
+
+###5月
+1. 05/03 乃木坂46 アンダーライブ 1部 (TSUTAYA O-East)
+- 05/30 乃木坂46 16人のプリンシパルtrois (赤坂ACTシアター)
+
+###6月
+1. 06/01 東京パフォーマンスドール 「「BRAND NEW STORY」ミニライブ＆予約特典会～TPDの名にかけて！～」 (アーバンドックららぽーと豊洲)
+- 06/05 乃木坂46 乃木坂アクトMOVIE (赤坂ACTシアター)
+- 06/05 乃木坂46 16人のプリンシパルtrois (赤坂ACTシアター)
+- 06/07 ハロプロ研修生発表会 6月の生タマゴSHOW (ディファ有明)
+- 06/08 Outlook Festival 2014 Japan Lounch party （新木場スタジオコースト）
