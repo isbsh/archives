@@ -34,6 +34,7 @@
 - 『Dress to kill』 / AFTERSCHOOL
 - 「So Wonderful」/ LADIES' CODE
 - 「裸の裸の裸のKISS*/ アレコレしたい!」/ Juice=Juice
+- 「Matatabistep/あの青と蒼と青」/ パスピエ
 
 ###4月
 1. 『Berryz工房 スッペシャル ベスト, Vol.2』/ Berryz工房 
@@ -42,7 +43,19 @@
 - 「気づいたら片想い」/ 乃木坂46
 - 「だいやぁ☆もんど」/ だいやぁ☆もんど
 - 『KGYワンダーランド』/ KGY40Jr.
-- 「時空を超え 空を超え/Password is 0」モーニング娘。'14
+- 「時空を超え 空を超え/Password is 0」/ モーニング娘。'14
+
+###5月
+1. 「ふれて未来を」/ 中村舞子
+- 「Move」/ キム・ヨンウ
+- 「JUICY LOVE」/ Happiness
+- 「I'm Coming」/ Pa's Lam System
+- 「真冬のサンライト / acceleration」/ Citron*
+
+###6月
+1. 「BRAND NEW STORY」/ 東京パフォーマンスドール
+2. 「千夜一夜 -Rearranged ver.-」/東京パフォーマンスドール
+- 『단발머리(Short Hair)』/ AOA
 
 ---
 ##コンサート・ライブ・イベント
@@ -86,3 +99,5 @@
 - 06/05 乃木坂46 16人のプリンシパルtrois (赤坂ACTシアター)
 - 06/07 ハロプロ研修生発表会 〜6月の生タマゴShow!～ (ディファ有明)
 - 06/08 Outlook Festival 2014 Japan Lounch party （新木場スタジオコースト）
+- 06/14東京パフォーマンスドール 「「BRAND NEW STORY」リリースイベント2部 (アーバンドックららぽーと豊洲)
+- 06/29 乃木坂アンダーライブ (六本木ブルーシアター)
