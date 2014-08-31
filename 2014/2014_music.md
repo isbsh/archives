@@ -140,3 +140,6 @@
 ### 8月
 1. [08/02 Tokyo Idol Festival 2014 ](http://bettysizemor.tumblr.com/post/93687572803#8-2)（お台場）
 - [08/03 Tokyo Idol Festival 2014](http://bettysizemor.tumblr.com/post/93687572803#8-3) （お台場）
+- 08/24 乃木坂46 真夏の全国ツアー2014 昼公演（ゼビオアリーナ仙台）
+- 08/24 乃木坂46 真夏の全国ツアー2014 夜公演（ゼビオアリーナ仙台）
+- 08/30 乃木坂46 真夏の全国ツアー2014 （明治神宮野球場）
