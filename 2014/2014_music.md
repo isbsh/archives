@@ -95,7 +95,7 @@
 ### 1月
 1. [01/02 Hello!Project 2014 WINTER ~GOiSU MODE~ ](http://isbsh.silk.co/page/Hello!Project%202014%20WINTER%20~GOiSU%20MODE~%20140102)(中野サンプラザ)
 - [01/05 Hello!Project 2014 WINTER ~DE-HA MiX~](http://isbsh.silk.co/page/Hello!Project%202014%20WINTER%20~DE-HA%20MiX~)(中野サンプラザ)
-- [01/19 トレイニーズコレクション vol.8 ～選抜メンバーライブ～ 昼公演]()(渋谷REX)
+- [01/19 トレイニーズコレクション vol.8 ～選抜メンバーライブ～ 昼公演](http://isbsh.silk.co/page/%E3%83%88%E3%83%AC%E3%82%A4%E3%83%8B%E3%83%BC%E3%82%BA%E3%82%B3%E3%83%AC%E3%82%AF%E3%82%B7%E3%83%A7%E3%83%B3Vol.8)(渋谷REX)
 - [01/19 アイドル・フィロソフィー VOL.4 夜の部](http://isbsh.silk.co/page/%E3%82%A2%E3%82%A4%E3%83%89%E3%83%AB%E3%83%BB%E3%83%95%E3%82%A3%E3%83%AD%E3%82%BD%E3%83%95%E3%82%A3%E3%83%BC%20VOL.4%20%E5%A4%9C%E3%81%AE%E9%83%A8)(club asia)
 - [01/25 姫ラジ](http://isbsh.silk.co/page/%E5%A7%AB%E3%83%A9%E3%82%B8) (深川ギャザリア レインボータウンFM 木場スタジオ)
 - [01/26 アキドラアイドルLIVE　vol.5](http://isbsh.silk.co/page/%E3%82%A2%E3%82%AD%E3%83%89%E3%83%A9%E3%82%A2%E3%82%A4%E3%83%89%E3%83%ABLIVE%E3%80%80vol.5) (AKIBAドラッグ＆カフェ)
@@ -153,6 +153,7 @@
 - [08/03 Tokyo Idol Festival 2014](http://bettysizemor.tumblr.com/post/93687572803#8-3) （お台場）
 - 08/24 乃木坂46 真夏の全国ツアー2014 昼公演（ゼビオアリーナ仙台）
 - 08/24 乃木坂46 真夏の全国ツアー2014 夜公演（ゼビオアリーナ仙台）
+<<<<<<< HEAD
 - 08/30 乃木坂46 真夏の全国ツアー2014 （明治神宮野球場）
 
 ### 9月
@@ -161,5 +162,9 @@
 
 ### 10月
 1. 10/05 乃木坂アンダーライブ (六本木ブルーシアター)
+2. 10/06 乃木坂アンダーライブ (六本木ブルーシアター)
 
 
+=======
+- [08/30 乃木坂46 真夏の全国ツアー2014](http://bettysizemor.tumblr.com/post/96209441598) （明治神宮野球場）
+>>>>>>> FETCH_HEAD
