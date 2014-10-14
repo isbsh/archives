@@ -5,75 +5,86 @@
 ### 1月
 1. 「YA・ME・TE!/アバンチュールは銀色に」/ Especia
 - 『スタダ 3Bjunior ラスト大全集』/ 3Bjunior
-- 「アイリス」/ アイリス
+- 「アイリス」/ アイリス ****
 - 「カラフルデイズ」/ LinQ
-- 「짧은 치마 Miniskirt」/ AOA
-- 『Flower』/ Flower
-- 「いいな」/ ウルトラガール (2013年の曲)
-- 「笑顔の君は太陽さ/君の代わりは居やしない/What is LOVE」/ モーニング娘。'14
-- 「キューティパイ！」/ PLC
-- 『STAR☆TING』/ hy4_4yh
-- 『時が奏でる』/ 蓮沼執太フィル
+- 「짧은 치마 Miniskirt」/ AOA *****
+- 『Flower』/ Flower **
+- 「いいな」/ ウルトラガール (2013年の曲) ***
+- 「笑顔の君は太陽さ/君の代わりは居やしない/What is LOVE」/ モーニング娘。'14 *
+- 「キューティパイ！」/ PLC **
+- 『STAR☆TING』/ hy4_4yh *
+- 『時が奏でる』/ 蓮沼執太フィル ****
 
 ### 2月
-1. 『心友』/ おはガールちゅ!ちゅ!ちゅ!
-- 「LADY POWER」/ Lucky Color's
+1. 『心友』/ おはガールちゅ!ちゅ!ちゅ! **
+- 「LADY POWER」/ Lucky Color's **
 - 『私生活』/ may.e
 - 「Stand Still (feat. Micky Green) [Wave Racer Remix]」/ Flight Faclities
 - 「With You feat. Grovesnor (Flight Facilities ExtendedMix)」/ Flight Faclities
-- 「Streamers」/ Wave Racer
+- 「Streamers」/ Wave Racer ***
 - 『変身ダーッ！』/ はちきんガールズ
 - 『冒険はじまる。』/ はちきんガールズ
-- 「大人なのよ!/1億3千万総ダイエット王国」
+- 「大人なのよ!/1億3千万総ダイエット王国」 / Berryz工房 **
 
 ### 3月
-1. 『Destroy All Monsterz』/ 青山☆聖ハチャメチャハイスクール
-- 「ルシャナの気持ち/Lady Silence」/ Le Siana
+1. 『Destroy All Monsterz』/ 青山☆聖ハチャメチャハイスクール *
+- 「ルシャナの気持ち/Lady Silence」/ Le Siana 
 - 「終わらないラブストーリー/ミライのカタチ」/ Le Siana
-- 「It's You」/ Neon Bunny
-- 『Little Glee Monster』/ Little Glee Monster
+- 「It's You」/ Neon Bunny ***
+- 『Little Glee Monster』/ Little Glee Monster ***
 - 「心の叫びを歌にしてみた / Love take it all」 / ℃-ute
-- 『Dress to kill』 / AFTERSCHOOL
-- 「So Wonderful」/ LADIES' CODE
-- 「裸の裸の裸のKISS*/ アレコレしたい!」/ Juice=Juice
-- 「Matatabistep/あの青と蒼と青」/ パスピエ
+- 『Dress to kill』 / AFTERSCHOOL 
+- 「So Wonderful」/ LADIES' CODE **
+- 「裸の裸の裸のKISS*/ アレコレしたい!」/ Juice=Juice *
+- 「Matatabistep/あの青と蒼と青」/ パスピエ *
 
 ### 4月
 1. 『Berryz工房 スッペシャル ベスト, Vol.2』/ Berryz工房
     - 「コイセヨ」
     - 「女の子にしか分かんない丁度があるの」
-- 「気づいたら片想い」/ 乃木坂46
+- 「気づいたら片想い」/ 乃木坂46 **
 - 「だいやぁ☆もんど」/ だいやぁ☆もんど
-- 『KGYワンダーランド』/ KGY40Jr.
-- 「時空を超え 空を超え/Password is 0」/ モーニング娘。'14
+- 『KGYワンダーランド』/ KGY40Jr. *
+- 「時空を超え 空を超え/Password is 0」/ モーニング娘。'14 ****
 
 ### 5月
-1. 「ふれて未来を」/ 中村舞子
-- 「Move」/ キム・ヨンウ
-- 「JUICY LOVE」/ Happiness
-- 「I'm Coming」/ Pa's Lam System
-- 「真冬のサンライト / acceleration」/ Citron*
+1. 「ふれて未来を」/ 中村舞子 ***
+- 「Move」/ キム・ヨンウ *****
+- 「JUICY LOVE」/ Happiness ****
+- 「I'm Coming」/ Pa's Lam System ***
+- 「真冬のサンライト / acceleration」/ Citron* ****
 
 ### 6月
-1. 「BRAND NEW STORY」/ 東京パフォーマンスドール
-2. 「千夜一夜 -Rearranged ver.-」/東京パフォーマンスドール
-- 『단발머리(Short Hair)』/ AOA
+1. 「BRAND NEW STORY」/ 東京パフォーマンスドール ***
+2. 「千夜一夜 -Rearranged ver.-」/東京パフォーマンスドール ****
+- 『단발머리(Short Hair)』/ AOA **
 
 ### 7月
-1. 『GOT♡』 / GOT7
-- 「うれしい!たのしい!大好き!」/ E-girls
-- 「미안해 (with 타코 & 전윤영)」 / 슈가블루스
-- 『Red Light』 / f(x)
-- 「夏のFree&Easy」 / 乃木坂46
+1. 『GOT♡』 / GOT7 **
+- 「하나 더 (One More)」 / FIESTAR ****
+- 「Ain’t Nothing Free」 / G-Twenty ***
+- 「うれしい!たのしい!大好き!」/ E-girls **
+- 「미안해 (with 타코 & 전윤영)」 / 슈가블루스 ****
+- 『Red Light』 / f(x) **
+- 「夏のFree&Easy」 / 乃木坂46 *
 - 「シトラスラブ」 / Ange
--  『Chu-Z My Music』 / Chu-Z
-- 『Hot Baby』/ BESTie
+-  『Chu-Z My Music』 / Chu-Z **
+- 『Hot Baby』/ BESTie ***
 
 ### 8月
-- 「はじまるふたり」/ さいとうまりな
-- 『バクバクドキン』/ バクバクドキン
+1. 「はじまるふたり」/ さいとうまりな *****
+- 『バクバクドキン』/ バクバクドキン **
 - 「シトラスラブ」 / Ange
-- 「Pop it」/ Anamanaguchi
+- 「Pop it」/ Anamanaguchi ***
+- 『The Feast Of The Broken Heart』/ Hercules And Love Affair **
+- 『Dabangg』/ Various Artists（OST） *
+- 「Midnight Candy Train」 / 16代目！ミニスカポリス
+- 「Lost In Love」 / Neon Bunny *
+
+### 9月
+1. 『Sidekick』 / Humming Urban Stereo ****
+- 「나처럼 해봐요 (My Copycat)」 / ORANGE CARAMERL ***
+- 「Catallena」 / ORANGE CARAMERL **
 
 
 
@@ -143,3 +154,12 @@
 - 08/24 乃木坂46 真夏の全国ツアー2014 昼公演（ゼビオアリーナ仙台）
 - 08/24 乃木坂46 真夏の全国ツアー2014 夜公演（ゼビオアリーナ仙台）
 - 08/30 乃木坂46 真夏の全国ツアー2014 （明治神宮野球場）
+
+### 9月
+1. 09/15 ハロプロ研修生発表会2014～9月の生タマゴShow!〜（ディファ有明）
+2. 09/28 16代目ミニスカポリス 秋葉原駐在所ライブ Vol.? (秋葉原アソビットシティイベントホール)
+
+### 10月
+1. 10/05 乃木坂アンダーライブ (六本木ブルーシアター)
+
+
