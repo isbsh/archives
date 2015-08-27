@@ -137,10 +137,10 @@
 - [5/27 モーニング娘。'15 コンサートツアー春 ～ GRADATION ～ (日本武道館)](http://dump.isbsh.asia/post/120030138578)
 
 
-- 6/14 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会 (ららぽーと豊洲)
+- [6/14 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会](http://dump.isbsh.asia/post/121518443973) (ららぽーと豊洲)
 
 
-- 6/14 ハロプロ研修生 発表会 2015～6月の生タマゴShow!～ (Zepp Tokyo)
+- [6/14 ハロプロ研修生 発表会 2015～6月の生タマゴShow!～](http://dump.isbsh.asia/post/121518443973) (Zepp Tokyo)
 
 
 - 6/17 ikkubaru JAPAN TOUR 2015 EXTRA SHOW  ACOUSTIC BREEZE! （吉祥寺キチム）
@@ -164,15 +164,15 @@
 - 7/29 寺尾紗穂 『楕円の夢』全国ツアー （渋谷・伝承ホール）
 
 
-- 8/1 Tokyo Idol Festival 2015 （お台場）
+- [8/1 Tokyo Idol Festival 2015 ](http://dump.isbsh.asia/post/126168206083)（お台場）
 
 
-- 8/2 Tokyo Idol Festival 2015 （お台場）
+- [8/2 Tokyo Idol Festival 2015 ](http://dump.isbsh.asia/post/126168206083)（お台場）
 
 
-- 8/5 乃木坂46 真夏の全国ツアー2015 仙台公演 （ゼビオアリーナ仙台）
+- [8/5 乃木坂46 真夏の全国ツアー2015 仙台公演](http://dump.isbsh.asia/post/126168465098) （ゼビオアリーナ仙台）
 
 
-- 8/6 乃木坂46 真夏の全国ツアー2015 仙台公演 （ゼビオアリーナ仙台）
-
- ​
+- [8/6 乃木坂46 真夏の全国ツアー2015 仙台公演](http://dump.isbsh.asia/post/126168465098) （ゼビオアリーナ仙台）
+  
+  ​
