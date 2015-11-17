@@ -7,16 +7,13 @@
 - 乃木坂46『透明な色』
 
 
-- 「なぞの落書き」**
-
-
 - Trent Reznor & Atticus Ross『Gone Girl (Soundtrack From The Motion Picture)』
 
 
-- Nine Muses 『DRAMA』***
+- Nine Muses 『DRAMA』
 
 
-- Spazzkid 「Daytime Disco (Kero Kero Bonito Remix)」**
+- Spazzkid 「Daytime Disco (Kero Kero Bonito Remix)」
 
 ### 3月
 
@@ -32,10 +29,10 @@
 - 4Minute 「Crazy」
 
 
-- callme 『To shine』***
+- callme 『To shine』
 
 
-- Kohh 『梔子』*
+- Kohh 『梔子』
 
 
 - Flight Facilities 『Down To Earth』
@@ -44,48 +41,42 @@
 - FIESTAR 『Black Label - EP』
 
 
-- Red Velvet 『Ice Cream Cake』**
+- Red Velvet 『Ice Cream Cake』
 
 
 - 乃木坂46 『命は美しい』
 
 
-- 「あらかじめ語られるロマンス」***
-
-
 - 夢みるアドレセンス 『Bye Bye My Days』
 
 
-- 「DATE COUNT FIVE」*
+- JONGHYUN 「Déjà-Boo (feat. Zion.T)」（『BASE』）
 
 
-- JONGHYUN 「Déjà-Boo (feat. Zion.T)」（『BASE』）***
-
-
-- Chic feat. Nile Rodgers『I'll Be There』***
+- Chic feat. Nile Rodgers『I'll Be There』
 
 ### 4月
 
 - EXID 『AH YEAH』
 
 
-- アイドルネッサンス 『YOU』*
+- アイドルネッサンス 『YOU』
 
 
 - 入江陽 『仕事』
 
 
-- LIBRO 『拓く人』*
+- LIBRO 『拓く人』
 
 
 - John Gastro「だいじょばない (John Gastro Acoustic Breakcore Cover) / Perfume」
 
 ### 5月
 
-- Lim Kim 『Simple Mind』***
+- Lim Kim 『Simple Mind』
 
 
-- LIBRO 『GEAR』***
+- LIBRO 『GEAR』
 
 
 - 泉まくら 『愛ならば知っている』
@@ -97,14 +88,14 @@
 - 寺尾紗穂 『楕円の夢』
 
 
-- 西恵利香 『Prologue』**
+- 西恵利香 『Prologue』
 
 
-- Girl's Day 「Hello Bubble」***
+- Girl's Day 「Hello Bubble」
 
 ## Event
 
-- [2/22 乃木坂46 3rd Birthday Live （西武ドーム）](http://dump.isbsh.asia/post/111876633968)
+- 2/22 乃木坂46 3rd Birthday Live （西武ドーム）[*](http://dump.isbsh.asia/post/111876633968)
 
 
 - 3/3 Berryz工房ラストコンサート2015　Berryz工房行くべぇ～！（日本武道館）
@@ -122,25 +113,25 @@
 - 5/5 ピーアークpresents bayfmフリマパラダイス スペシャルステージ （幕張メッセ国際展示場）
 
 
-- 5/6 東京パフォーマンスドール ZEPP TOUR 2015春 ～DANCE SUMMIT“1×0”ver3.0～ （Zepp DiverCity Tokyo)
+- 5/6 東京パフォーマンスドール ZEPP TOUR 2015春 ～DANCE SUMMIT“1×0”ver3.0～ （Zepp DiverCity Tokyo）
 
 
-- 5/13 東京パフォーマンスドール ZEPP TOUR 2015春 〜DANCE SUMMIT“Best of 1×0 FINAL ”〜（Zepp DiverCity Tokyo)
+- 5/13 東京パフォーマンスドール ZEPP TOUR 2015春 〜DANCE SUMMIT“Best of 1×0 FINAL ”〜（Zepp DiverCity Tokyo）
 
 
-- 5/17 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会 (ららぽーと豊洲)
+- 5/17 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会 （ららぽーと豊洲）
 
 
-- [5/24 乙女新党「キミとピーカン☆NATSU宣言っ!!!」発売記念予約イベント 2部 （タワーレコード錦糸町店）](http://dump.isbsh.asia/post/119777450358)
+- 5/24 乙女新党「キミとピーカン☆NATSU宣言っ!!!」発売記念予約イベント 2部 （タワーレコード錦糸町店） [*](http://dump.isbsh.asia/post/119777450358)
 
 
-- [5/27 モーニング娘。'15 コンサートツアー春 ～ GRADATION ～ (日本武道館)](http://dump.isbsh.asia/post/120030138578)
+- 5/27 モーニング娘。'15 コンサートツアー春 ～ GRADATION ～ （日本武道館） [*](http://dump.isbsh.asia/post/120030138578)
 
 
-- [6/14 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会](http://dump.isbsh.asia/post/121518443973) (ららぽーと豊洲)
+- 6/14 東京パフォーマンスドール3rdシングル『DREAMIN’』ミニライブ＆予約特典会 （ららぽーと豊洲） [*](http://dump.isbsh.asia/post/121518443973)
 
 
-- [6/14 ハロプロ研修生 発表会 2015～6月の生タマゴShow!～](http://dump.isbsh.asia/post/121518443973) (Zepp Tokyo)
+- 6/14 ハロプロ研修生 発表会 2015～6月の生タマゴShow!～ （Zepp Tokyo） [*](http://dump.isbsh.asia/post/121518443973)
 
 
 - 6/17 ikkubaru JAPAN TOUR 2015 EXTRA SHOW  ACOUSTIC BREEZE! （吉祥寺キチム）
@@ -164,15 +155,29 @@
 - 7/29 寺尾紗穂 『楕円の夢』全国ツアー （渋谷・伝承ホール）
 
 
-- [8/1 Tokyo Idol Festival 2015 ](http://dump.isbsh.asia/post/126168206083)（お台場）
+- 8/1 Tokyo Idol Festival 2015（お台場） [*](http://dump.isbsh.asia/post/126168206083)
 
 
-- [8/2 Tokyo Idol Festival 2015 ](http://dump.isbsh.asia/post/126168206083)（お台場）
+- 8/2 Tokyo Idol Festival 2015（お台場）[*](http://dump.isbsh.asia/post/126168206083)
 
 
-- [8/5 乃木坂46 真夏の全国ツアー2015 仙台公演](http://dump.isbsh.asia/post/126168465098) （ゼビオアリーナ仙台）
+- 8/5 乃木坂46 真夏の全国ツアー2015 仙台公演（ゼビオアリーナ仙台）[*](http://dump.isbsh.asia/post/126168465098)
 
 
-- [8/6 乃木坂46 真夏の全国ツアー2015 仙台公演](http://dump.isbsh.asia/post/126168465098) （ゼビオアリーナ仙台）
-  
-  ​
+- 8/6 乃木坂46 真夏の全国ツアー2015 仙台公演（ゼビオアリーナ仙台）[*]((http://dump.isbsh.asia/post/126168465098)
+- 8/30 乃木坂46 真夏の全国ツアー2015 神宮球場公演（明治神宮球場）[*](http://dump.isbsh.asia/post/127958417473)
+- 8/31 乃木坂46 真夏の全国ツアー2015 神宮球場公演（明治神宮球場）
+- 9/12 乃木坂46 12thシングル「太陽ノック」発売記念 セブン－イレブン限定ライブ / 全国握手会ミニライブ （幕張メッセ）
+- 9/22 Girl’s Day 2015 Autumn Party （豊洲PIT）
+- 9/29 Girl's Day 『Darling (JPN ver.)』発売記念ミニライブ  （ビーナスフォート 教会広場）
+- 9/30 Girl's Day 『Darling (JPN ver.)』発売記念ミニライブ  （ダイバーシティ東京プラザ  フェスティバル広場）
+- 10/1 「すべての犬は天国へ行く」（AiiA 2.5 Theater Tokyo）
+- 10/8 「すべての犬は天国へ行く」（AiiA 2.5 Theater Tokyo）
+- 10/11 東京パフォーマンスドールライブDVD/Blu-ray『ZEPP TOUR 2015春～DANCE SUMMIT“1×0”ver3.0～』発売記念予約イベント （ラゾーナ川崎 ルーファ広場）				
+- 10/15 AOA  JAPAN 1st Album「Ace of Angels」発売記念イベント （池袋サンシャインシティ噴水広場）
+- 10/17 乃木坂46 アンダーライブ4thシーズン （AiiA 2.5 Theater Tokyo）
+- 10/18 AOA  JAPAN 1st Album「Ace of Angels」発売記念イベント（ダイバーシティ東京プラザ  フェスティバル広場）
+- ​10/18 アイドルフェス in スポーツ・オブ・ハート （代々木競技場第二体育館周辺）
+- 11/1 Kero Kero Bonito×hy4_4yh 日英友好ツーマン （浅草KURAWOOD）
+- 11/3 武藤彩未 「Re:BIRTH～19th Birthday Live at渋谷公会堂」リリース記念インストアイベント （ららぽーと豊洲）
+- 11/7 原宿駅前ステージ 「寒くなってきましたが、原宿駅前でポカポカに！夜ね！」（原宿駅前ステージ）
