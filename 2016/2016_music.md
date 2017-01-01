@@ -33,8 +33,3 @@
 - 10/21 ソン・ジウン 『Bobby Doll』発売記念イベント （ダイバーシティ東京 プラザ　フェスティバル広場）
 - 11/03 f(x) the 1st concert DIMENSION 4 - Docking Station in JAPAN [ENCORE] （横浜アリーナ） 
 
-
-
-## 予定
-
-- ​
