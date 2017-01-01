@@ -28,9 +28,13 @@
 - 08/15 AKB48 Team8 テレビ朝日・六本木ヒルズ夏祭り SUMMER STATION 音楽ライブ （六本木ヒルズ）
 - 09/19 中央警察署 交通安全キャンペーン  一日警察署長小栗有以 （日本橋南詰交差点）
 - 09/25 AKB48 Team8 全国ツアー 〜47の素敵な街へ〜 福井県公演 （福井フェニックス・プラザ）★
+- 10/15 AKB48 Team8 SACAS CIRCUIT 2016 SUPPORTED BY TOYOTA GAZOO Racing （赤坂サカス サカス広場）
+- 10/16 AKB48 Team8 SACAS CIRCUIT 2016 SUPPORTED BY TOYOTA GAZOO Racing （赤坂サカス サカス広場）
+- 10/21 ソン・ジウン 『Bobby Doll』発売記念イベント （ダイバーシティ東京 プラザ　フェスティバル広場）
+- 11/03 f(x) the 1st concert DIMENSION 4 - Docking Station in JAPAN [ENCORE] （横浜アリーナ） 
 
 
 
 ## 予定
 
-- 11/03 f(x) the 1st concert DIMENSION 4 - Docking Station in JAPAN [ENCORE] （横浜アリーナ） 
+- ​
